@@ -73,7 +73,6 @@ For any inquiries or issues, please contact:
 
 <h4>NANDNI JHA:(jhanandni707@gmail.com)</h4>
 <h4>AMRITA TIWARI:(tamrita812@gmail.com)</h4>
-<h4>ABHIJEET KUMAR:(abhijeetk6744@gmail.com)</h4>
 
 ---
 
